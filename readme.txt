@@ -1,1 +1,1 @@
-alualizado
+atualizado
